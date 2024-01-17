@@ -1,0 +1,1 @@
+# lkm kaut kas te jāraksta! 
